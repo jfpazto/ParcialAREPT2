@@ -1,0 +1,2 @@
+# Parcial Segundo Tercio
+
